@@ -1,3 +1,4 @@
+*[^*]
 ### Alex McMillan <br/>
 ## Canadian writer, London-based. <br/>
 
@@ -9,3 +10,5 @@
 
 **Site last updated:** <br/>
 January 25th, 2024
+
+[^*]: Site is always in progress.
