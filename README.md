@@ -1,6 +1,6 @@
 ### Alex McMillan
 
-#### Canadian writer, London-based.
+#### Canadian writer, London-based. <br/>
 
 **selected writing:**
 
