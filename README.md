@@ -7,5 +7,5 @@
 **==contact:==** <br/>
 [alexander.mcmillan1 (at) gmail (dot) com](alexander.mcmillan1@gmail.com) <br/>
 
-***Site is always in progress. Last updated:** <br/>
+**Site Last updated:** <br/>
 January 25th, 2024
