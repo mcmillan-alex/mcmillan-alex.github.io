@@ -1,4 +1,4 @@
-### Alex McMillan <br/>
+### Alex McMillan
 ## Canadian writer, London-based. <br/>
 
 **selected writing:** <br/>
