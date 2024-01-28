@@ -10,5 +10,5 @@
 **contact:** <br/>
 > [alexander.mcmillan1 (at) gmail (dot) com](alexander.mcmillan1@gmail.com) <br/>
 
-**Site Last updated:** <br/>
-> January 25th, 2024
+**Last updated:** <br/>
+January 25th, 2024.
