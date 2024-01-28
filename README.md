@@ -1,5 +1,7 @@
 ### Alex McMillan
-#### Canadian writer, London-based.
+#### Canadian writer, London-based. <br/>
+
+--- <br/>
 
 **currently:** <br/>
 > Pursuing an MFA in ... <br/>
