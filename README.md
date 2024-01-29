@@ -1,4 +1,4 @@
-### [Alex McMillan is a Canadian writer, London-based.](https://www.mcmillan-alex.github.io 'mcmillan-alex.github.io)
+### [Alex McMillan is a Canadian writer, London-based.](https://www.mcmillan-alex.github.io 'mcmillan-alex.github.io')
 #### Canadian writer, London-based.
 
 
