@@ -3,7 +3,12 @@
 
 **currently:**
 
-> Pursuing an MFA in ...
+> pursuing an MFA in ...
+
+
+**recently:**
+
+> graduate diploma, fine art (with distinction), Chelsea College of Arts (2022)
 
 
 **selected writing:**
