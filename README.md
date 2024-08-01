@@ -1,6 +1,11 @@
 **Alex McMillan**
-Canadian writer and researcher, London-based.
-["alexander.mcmillan1 [at] gmail [dot] com"](Mailto:alexander.mcmillan1@gmail.com)
+
+
+> Canadian writer and researcher, London-based.
+> 
+> [alexander.mcmillan1 [at] gmail [dot] com](Mailto:alexander.mcmillan1@gmail.com)
+
+
 
 
 
