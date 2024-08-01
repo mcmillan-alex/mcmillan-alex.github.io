@@ -1,7 +1,5 @@
 **Alex McMillan**
-
 Canadian writer and researcher, London-based.
-
 ["alexander.mcmillan1 [at] gmail [dot] com"](Mailto:alexander.mcmillan1@gmail.com)
 
 
@@ -23,8 +21,6 @@ Canadian writer and researcher, London-based.
 
 **a video:**
 
-> [An Airport Shuttle Driver Telling Stories on WhatsApp]
->
 > ["An Airport Shuttle Driver Telling Stories on WhatsApp"](https://vimeo.com/724441596)
 
 
